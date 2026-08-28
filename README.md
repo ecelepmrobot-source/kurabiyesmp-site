@@ -1,1 +1,0 @@
-# kurabiyesmp-site
